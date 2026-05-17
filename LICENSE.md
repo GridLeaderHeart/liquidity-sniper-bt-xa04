@@ -1,4 +1,4 @@
-# 
+# elite bot de sniper MEV ejecutor es el mejor bot de sniper MEV ejecutor con sniper de liquidez y detección de picos de volumen. Seguro, confiable y optimizado para estrategias
 
 
 
